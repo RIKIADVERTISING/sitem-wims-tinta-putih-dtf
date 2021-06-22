@@ -6,5 +6,6 @@ untuk yang mau melakukan donasi silahkan https://saweria.co/RIKIADVERTISING saya
 
 yang berkontribusi projeck,pengembang,program,pendukung,doansi,dan lainnya
 
-* riki yuliana
-* wawan herdianto
+- riki yuliana
+- wawan herdianto
+- Yono Wang Syn Print
